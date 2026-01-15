@@ -1,8 +1,8 @@
 <p align="center" dir="auto">
-<img src="https://i.postimg.cc/6QCBtN3V/IMG_8855.gif" style="max-width: 450%; "></p>
+<img src="https://i.postimg.cc/zBf2pn9L/IMG_8823.png" style="max-width: 450%; "></p>
 
 <p align="center" dir="auto">
-<img src="https://i.pinimg.com/originals/cc/e0/65/cce0655c84cca9170b192c2ea1decaf4.gif" style="max-width: 450%; "></p>
+<img src="https://files.catbox.moe/bb3cx6.png" style="max-width: 450%; "></p>
 
 <p align="center" dir="auto">
 <ins><b><em>smirks</em></b></ins>  feel free 2 int anytime  ˘⤙˘
