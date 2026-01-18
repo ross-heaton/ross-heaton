@@ -18,4 +18,4 @@
 
 <p align="center" dir="auto">
 <img src="https://files.catbox.moe/jg4xjf.png"  "></p>
-@vyers fat??
+@vysters fat??
